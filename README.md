@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @CodeMeastro
+- 👀 I’m interested in Programming & Codinglife
+- 🌱 I’m currently doing Siftware Engineering
+- 💞️ I’m working on wordpress web-developing
+- 📫 codingmeastro@gmail.com
+- 😄 He/him
+- ⚡ I am a badminton player and tea lover especially
